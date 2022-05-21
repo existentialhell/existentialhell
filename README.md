@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @existentialhell. Call me Ex, or Hell, if you like
 - 👀 I’m interested in metroidvanias, vinyl, and languages of every flavor. 
-- 🌱 I’m currently learning - everything, cuz right now I know absolutely nothing 👑
+- 🌱 I’m currently learning - everything! cuz right now I know absolutely nothing 👑
 - 📫 How to reach me - please don't, I have no skills and will be of absolutely zero help ☠️
 
 <!---
